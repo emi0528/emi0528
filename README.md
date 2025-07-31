@@ -1,16 +1,14 @@
-## Hi there 👋
+Emilly Grazielly Gusmão Azevedo
 
-<!--
-**emi0528/emi0528** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+06/10/2009
 
-Here are some ideas to get you started:
+Ênfase
+Santana de Parnaíba
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Estudante
+
+insta: emi__gusmao
+
+
+![Princesa Tiana](https://www.humpalumpa.com.br/fotos/personagens/26personagem_07032018-191311.jpg "a princesa Tiana wm um circolo com uma borbolrta.")
+![Hello kitty ](https://i.pinimg.com/originals/c3/d2/2f/c3d22f62f84cef0172158c4cad2345cb.gif)
